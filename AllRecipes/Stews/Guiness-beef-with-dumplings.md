@@ -49,7 +49,7 @@ Cheddar Herb Dumplings:
 - Pour in the Guinness and Worcestershire sauce. Allow to come to a simmer and stir with a wooden spoon, scraping up the browned bits from the bottom of the pot. 
     - A note about the beer: I usually lean towards more is better here. Just take off from the amount of broth you add.
 - Add the beef back to the pot and pour in the chicken broth. Add the bay leaf and thyme. 
-- Reduce to a simmer and cover. Simmer for 1 1/2 hours. Add the potatoes or parsnips and the turnip. Simmer for another 1/2 hour, or until the vegetables are tender.
+- Reduce to a simmer and cover. Simmer for 1 1/2 hours. Add the potatoes. Simmer for another 1/2 hour, or until the vegetables are tender.
     - A test to see if this has cooked long enough is the beef should be a bit softer now. You're shooting for being able to break apart the strands by squeezing it between your fingers.
     - Potatoes are done when you can easily put a fork through the tater.
 - Remove the bay leaf and thyme branches. If the stew is still thin, mix a tablespoon of cornstarch with a tablespoon of cold water to form a slurry. Mix the slurry into the stew and bring the mixture to a boil. Reduce to a simmer again, stirring occasionally, and add in the mushrooms if desired. Cook for 10 minutes, uncovered, until the stew thickens and the mushrooms are cooked through. 
