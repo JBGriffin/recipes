@@ -57,7 +57,8 @@ Cheddar Herb Dumplings:
 
 ## Dumplings
 - Preheat the oven to 350°F.
-- Stir together the self-rising flour and garlic powder in a medium bowl. Cut in the shortening until mixture resembles coarse crumbs. Stir in the cheddar cheese, then add the milk and stir until the dry ingredients are moistened.
+- Stir together the self-rising flour and garlic powder in a medium bowl. Cut in the shortening until mixture resembles coarse crumbs. 
+- Stir in the cheddar cheese, then add the milk and stir until the dry ingredients are moistened.
     - This mix should be a bit sticky. If it's still crumbly, add more milk.
 - Make small balls with the dough and place them on top of the stew, leaving them room to expand– they grow a lot as they cook. Place the stew in the oven uncovered and bake until the dumplings are browned and cooked through, about 30 to 40 minutes.
 - Garnish the stew with parsley and serve.
