@@ -14,6 +14,7 @@ Tangy, mustardy, good. Yields 4 cups
 - 2 teaspoons of onion powder
 - 3 or 4 shakes of Maggie Soy Sauce
 - 1/2 teaspoon black pepper
+- TT MSG (don't need much, light pinch or two)
 
 Note: you can sub out real onion or real garlic, just use your heart. If you're going with real onion, use a shallot. 
 
